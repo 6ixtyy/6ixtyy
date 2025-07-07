@@ -46,5 +46,5 @@ Here are some Project highlights:
 
 ##  **Contact**
 
- [My Linkedin ](https://linkedin.com/in/https://www.linkedin.com/in/zackaria-abdi-2697932b9/)  
-✉ zackariaabdi85@gmail.com  
+Linkedin :[zaki](https://linkedin.com/in/https://www.linkedin.com/in/zackaria-abdi-2697932b9/)  
+Email : zackariaabdi85@gmail.com  
